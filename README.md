@@ -1,0 +1,1 @@
+# Case-Friflex-MAI-2024-team-Smeshariki
